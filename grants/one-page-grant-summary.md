@@ -1,4 +1,19 @@
-One-Page Grant Summary
+## One-Page Grant Summary
+
+### Organization
+Reno Revival Church (501(c)(3))  
+Fiscal Sponsor for the Reno Revival Stability Project
+
+### Program Name
+Reno Revival Stability Project
+
+### Program Overview
+The Reno Revival Stability Project provides housing stability, employment support, life skills training, and faith-based mentoring for justice-impacted individuals and those experiencing housing insecurity. The program focuses on long-term stability through accountability, structure, and community support.
+
+### Community Need
+Many individuals reentering society after incarceration face barriers to housing, employment, and supportive services. Without intervention, these barriers increase the risk of homelessness and recidivism. This program addresses these gaps through coordinated, relationship-based support.
+
+### Target PopulationOne-Page Grant Summary
 
 Project Name
 
