@@ -1,4 +1,15 @@
-Sustainability Plan
+## Sustainability Plan
+
+The Reno Revival Stability Project is designed to continue beyond the initial grant period through diversified funding, community partnerships, and volunteer engagement.
+
+### Funding Strategy
+• Ongoing grant applications through faith-based and community foundations  
+• Individual donations and church-based giving  
+• Fundraising events and sponsorships  
+• In-kind donations for housing, food, clothing, and transportation  
+
+### Organizational Support
+As a fiscally sponsored program of Reno Revival Church (a 501(c)(Sustainability Plan
 
 Long-Term Vision
 
