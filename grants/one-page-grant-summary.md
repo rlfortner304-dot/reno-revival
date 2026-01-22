@@ -45,3 +45,11 @@ Contact Information
 Reno Revival Church
 Reno, Nevada
 (Program contact information to be added)
+
+
+## Fiscal Sponsorship
+
+The Reno Revival Stability Project operates under the 501(c)(3) nonprofit status
+of Reno Revival Church, which serves as the project’s fiscal sponsor. All grant
+funds are received, managed, and reported through Reno Revival Church in
+accordance with nonprofit and grant compliance requirements.
